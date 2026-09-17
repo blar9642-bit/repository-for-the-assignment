@@ -1,2 +1,6 @@
 # repository-for-the-assignment
-Hi Modell!
+Hi Modell! ~ Bronx
+
+Hi Modell! ~ Esteban
+
+
